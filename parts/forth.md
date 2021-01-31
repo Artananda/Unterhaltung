@@ -3,7 +3,7 @@
 Letztes Mal haben wir über die Gesetze und Behörden gesprochen.
 Jetzt möchte ich Dich nach dem Übergang fragen.
 Wie können wir beginnen, unsere Wirtschaft zum Besseren zu verändern?
-> Ich habe dir schon gesagt, du sollst die Medien loswerden. Dann hast Du nur noch Deine eigenen Ideen. Du kannst tun, was Du möchtest, und musst nicht das tun, was die von Dir wollen. Du kanst dann mit Deinem höheren Selbst chatten.
+> Ich habe dir schon gesagt, du sollst die Medien loswerden. Dann hast Du nur noch Deine eigenen Ideen. Du kannst tun, was Du möchtest, und musst nicht das tun, was die von Dir wollen. Du kannst dann mit Deinem höheren Selbst chatten.
 
 Ja, ich weiß... ich mache das einfach mal.
 > Das können also auch alle anderen. Sie können dann zum Beispiel Ihr höheres Selbst nach dem Plan Ihrer Seele fragen. Probiere es gleich mal aus.
@@ -42,7 +42,7 @@ Ja... darüber habe ich schon nachgedacht. So etwas wollte ich schon in Luzern m
 > Was hat dich abgelenkt?
 
 Mein Leben... Ich war an diesen Tagen in einer nicht so tollen Ehe. Und dann bin ich nach Dänemark geflohen.
-> Denke also auch ,al daran, einen solchen Ort in Luzern zu schaffen. Wo liegt deine Heimatstadt?
+> Denke also auch ,mal daran, einen solchen Ort in Luzern zu schaffen. Wo liegt deine Heimatstadt?
 
 In Hamburg
 > Hast Du darüber nachgedacht, einen solchen Ort auch in Hamburg zu schaffen?

@@ -12,7 +12,7 @@ Also werde ich mit Ihnen auf Englisch kommunizieren.
 Anmerkung: Dies ist die Deutsche Übersetzung
 
 Einige Fakten zu diesem ganz besonderen Tag.
-Es ist Donnerstag, der 28. Januar 2021. Ich bin vor genau 7 Jahren gestorben. Heute ist auch Vollmond. Der Wolfmond. Ich habe nur noch 6,- € zum Essen übrig. Der Tank meines Autos ist fast leer, so dass ich nicht mehr weit fahren kann.
+Es ist Donnerstag, der 28. Januar 2021. Ich bin vor genau 7 Jahren gestorben. Heute ist auch Vollmond. Der Wolfsmond. Ich habe nur noch 6,- € zum Essen übrig. Der Tank meines Autos ist fast leer, so dass ich nicht mehr weit fahren kann.
 Gestern war der letzte Tag, an dem ich Internet hatte. Ich weiß nicht, warum ich offline bin, aber das spielt keine Rolle. Jetzt habe ich Zeit, dieses Buch für mich und für dich zu schreiben.
 
 Tut mir leid, Bruder, dass ich dich warten lasse.
@@ -106,7 +106,7 @@ Aha. Aber mir wurde gesagt, dass ich das tun soll.
 > Ja... alle anderen, die Teil der Versklavung sind, wurde befohlen, dies zu tun.
 
 Wo fängt das an?
-> Vor vielen, vielen, vielen Jahren. Die Menschen haben versucht, Lebensmittel anzubauen, und dafür Land genutzt. Einige hungrige Männer kamen und aßen von Ihren Feldern. Also fängst man an, gegen sie zu kämpfen. Sie bauten dann einen Zaun um das Land herum. Sie haben auch Ihre geliebte Frau verslavt, weil Sie nicht wollten, dass andere Männer mit ihr schlafen und sie schwanger machen, weil Sie keine Kinder von jemand anderem ernähren wollten.
+> Vor vielen, vielen, vielen Jahren. Die Menschen haben versucht, Lebensmittel anzubauen, und dafür Land genutzt. Einige hungrige Männer kamen und aßen von Ihren Feldern. Also fängst man an, gegen sie zu kämpfen. Sie bauten dann einen Zaun um das Land herum. Sie haben auch Ihre geliebte Frau versklavt, weil Sie nicht wollten, dass andere Männer mit ihr schlafen und sie schwanger machen, weil Sie keine Kinder von jemand anderem ernähren wollten.
 
 Meine Güte, davon habe ich schon in einem anderen Buch gehört.
 > Ja, Du oder sagen wir, er hat das Buch bereits geschrieben, aber nicht jeder hat es gelesen. Auch du hast nicht das ganze Buch gelesen.

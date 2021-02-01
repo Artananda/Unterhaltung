@@ -49,11 +49,11 @@ Ebook {
     }
     Part {
         src: "rulesdraft.md"
-        name: "Gesetzesentwürfe"
+        name: "Gesetzesentwuerfe"
     }
     Part {
         src: "about.md"
-        name: "Über"
+        name: "Ueber"
     }
     Part {
         src: "glossary.md"

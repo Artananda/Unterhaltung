@@ -62,4 +62,4 @@ Wie kann ich sicher sein, dass es andere wie mich gibt?
 
 
 ## Kontakt
-Wenn Du mit mir in Kontakt treten möchtest, sende mir bitte eine E-Mail an [artanidos@gmail.com](mailto: artanidos@gmail.com) oder kontaktiere mich per Telegramm unter dieser Nummer: +351 969 31 28 08
+Wenn Du mit mir in Kontakt treten möchtest, sende mir bitte eine E-Mail an [artanidos@gmail.com](mailto:artanidos@gmail.com) oder kontaktiere mich per Telegramm unter dieser Nummer: +351 969 31 28 08

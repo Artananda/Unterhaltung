@@ -10,3 +10,6 @@ Ich biete Dir dieses Buch im Geiste des Geschenks an. Dieses Buch ist unter der 
 Das Merkmal von Geschenken ist, dass das Rückgabegeschenk nicht im Voraus festgelegt wird. Wenn Du dieses Buch erhalten hast oder kostenlos verteilst, freue ich mich über ein freiwilliges Geschenk, das Deine Dankbarkeit und Wertschätzung zum Ausdruck bringt. Du kannst dies auch über die folgende Website tun:
 [Meine Bücher] (https://artananda.github.io/manifestation/books.html)
 Ein großer Teil meines Wissens in diesem Buch wurde mir damals gegeben und ich gebe es hiermit an Dich weiter.
+
+# Personen in diesem Buch
+Um meine Freunde zu schützen verwende ich andere Namen für die Personen in diesem Buch. Lediglich ein paar bedeutende Menschen wie Ralph Boes, Bauchi, Joe Kreissl, Wolfgang Biebel und Michael Tellinger erwähne ich mit ihrem Namen, da sie auch öffentlich auftreten.

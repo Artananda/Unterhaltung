@@ -1,7 +1,7 @@
 import EbookCreator 1.0
 
 Ebook {
-    name: "Unterhaltung mit meinem höheren Selbst"
+    name: "Meine Heldenreise"
     language: "de"
     size: "A5"
     theme: "Epub3DE"
@@ -21,35 +21,71 @@ Ebook {
     }
     Part {
         src: "first.md"
-        name: "Meine erste Unterhaltung"
+        name: "Einleitung"
     }
     Part {
-        src: "second.md"
-        name: "Wir sind alle EINS"
+        src: "abschied.md"
+        name: "Abschied"
     }
     Part {
-        src: "third.md"
-        name: "Kein Grund zum Arbeiten"
+        src: "wegpunkte.md"
+        name: "Wegpunkte"
     }
     Part {
-        src: "forth.md"
-        name: "Seelenplan"
+        src: "obidos.md"
+        name: "Obidos"
     }
     Part {
-        src: "fifth.md"
-        name: "Transition"
+        src: "lissabon.md"
+        name: "Lissabon"
     }
     Part {
-        src: "six.md"
-        name: "Hausbau"
+        src: "monchique.md"
+        name: "Monchique"
     }
     Part {
-        src: "laws.md"
-        name: "Gesetze"
+        src: "ubuntu.md"
+        name: "Ubuntu"
     }
     Part {
-        src: "rulesdraft.md"
-        name: "Gesetzesentwuerfe"
+        src: "wien.md"
+        name: "Wien"
+    }
+    Part {
+        src: "bayreuth.md"
+        name: "Bayreuth"
+    }
+    Part {
+        src: "allensteig.md"
+        name: "Allensteig"
+    }
+    Part {
+        src: "bern.md"
+        name: "Bern"
+    }
+    Part {
+        src: "amoreira.md"
+        name: "Amoreira"
+    }
+    Part {
+        src: "alentejo.md"
+        name: "Alentejo"
+    }
+    Part {
+        src: "caldas.md"
+        name: "Caldas"
+    }
+    Part {
+        src: "flucht.md"
+        name: "Rückreise"
+    }
+    Part {
+        src: "berlin.md"
+        name: "Berlin"
+    }
+    Part {
+        src: "resume.md"
+        name: "Resume"
     }
     Part {
         src: "about.md"

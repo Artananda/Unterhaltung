@@ -1,154 +1,41 @@
-# Mein erstes Gespräch
+# Einleitung
 
-Ich befand mich in einer Meditation, ging über eine grüne Wiese und betrat mein Haus im Wald, um mein höheres Selbst zu besuchen. Ich öffnete die Tür und begann mein höheres Selbst zu fragen, ob er gerne mit mir ein Buch schreiben möchte. Ich möchte wissen, wie die Menschheit oder besser gesagt, wie Mutter Erde überleben wird.
-Ich fing an, in meiner Muttersprache zu sprechen.
+Man könnte dieses Buch als Fortsetzung meines Buches *Die Kunst zu Leben und zu Lieben* (siehe Buchtips am Ende dieses Buches) sehen. Quasi als Biografie oder auch einfach nur als das, was es ist...  
+**Meine Heldenreise**  
+Hiermit möchte ich mich auf gar keinen Fall vor euch als Held hinstellen, denn das liegt mir fern. Ich sehe mich einfach nur als Held meines persönlichen Lebens und möchte euch mit diesem Buch inspirieren, eure eigene Heldenreise anzutreten.  
+Es lohnt sich !  
 
-Möchtest du mit mir auf Deutsch oder auf Englisch kommunizieren?
-> Englisch
+Eines Tages war in im Waschsalong, um meine Wäsche zu waschen. Als ich wiederkam, musste ich feststellen, das jemand in mein Wohnmobil eingebrochen war und meine Computer, meine externe Festplatte, meine Memory-Sticks usw. gestohlen hatte.  
+Er dachte ich "Scheiße". Dann fiel mir aber ein, das wenn irgendwo eine Tür zufällt, irgendwoanders ein Fenster aufgeht. Er war nun ganz gespannt, was nun tolles in meinem Leben passieren wird.  
 
-Also werde ich mit Ihnen auf Englisch kommunizieren.
-> Danke
+Am selben Tag fragte mich Cindy, ob ich mit meiner Konga beim Mantra-Sing-Kreis einspringen könnte, weil der eigentliche Perkussionist abgesagt hatte. Sofort sagte ich zu. Nach dem Kreis haben wir dann unsere Gage in ein Restaurant getragen und fein gegessen.  
+Ich erzählte, was mir tagsüber passiert sei und Cindy meinte dann: "Prima, dann hast du ja jetzt Zeit, dein Buch zu schreiben"  
 
-Anmerkung: Dies ist die Deutsche Übersetzung
+Sie hatte recht. Mir gingen schon seit Wochen ein Thema für ein neues Buch durch den Kopf. Von diesem Buch hatte ich ihr bereits erzählt.  
+Gleich am nächsten Tag setzte ich mich mit Block uns Stift in mein Lieblingscafe und fing an, *Camp Eden* (siehe Buchtips am Ende dieses Buches) zu schreiben.  
 
-Einige Fakten zu diesem ganz besonderen Tag.
-Es ist Donnerstag, der 28. Januar 2021. Ich bin vor genau 7 Jahren gestorben. Heute ist auch Vollmond. Der Wolfsmond. Ich habe nur noch 6,- € zum Essen übrig. Der Tank meines Autos ist fast leer, so dass ich nicht mehr weit fahren kann.
-Gestern war der letzte Tag, an dem ich Internet hatte. Ich weiß nicht, warum ich offline bin, aber das spielt keine Rolle. Jetzt habe ich Zeit, dieses Buch für mich und für dich zu schreiben.
+Nachdem ich am dritten Tag zurück zu meinem Wohnmobil kam, fiel mir ein, das ich da eventuell noch das alte MacBook, das mir ein Kumpel geschenkt hatte, liegen haben könnte. Und tatsächlich es war noch da, weil ich es tief unter meinem Zeugs vergraben hatte.  
+Das alte Teil lief noch auf einem PowerPC, einem Vorgänge des Mac's mit Intel-Prozessor, aber dort war Adobe Illustrator, Photoshop und InDesign installiert.  
+Genau die Software auf der ich ein paar Jahre zuvor GrafikDesign studiert hatte und auch genau die Software, mit der man Bücher schreibt.  
 
-Tut mir leid, Bruder, dass ich dich warten lasse.
-> Es ist in Ordnung, nehme Dir Zeit.
+Wow, das Universum meint es gut mit mir.  
 
-Wie kann ich anfangen?
-> Frag mich, wer ich bin.
+In dem Buch *Camp Eden* geht es darum, wie wir in Venezuela eine Community gegründet haben. Das Buch spielte in der Zukunft und kann wohl als Utopie oder besser noch als Regnose angesehen werden. Wir erschaffen uns in dem Buch unser eigenen kleines Paradies und leben selbst-versorgend auf einer Karibik Insel.  
 
-Wer bist du?
-> Ich bin dein Vater.
+Einige Monate später habe ich das Buch dann in die englische Sprache übersetzt und den Ort habe ich von Venzuela auf die Algarve in Portugal geändert.  
+Keine Ahnung warum Portugal, denn ich war noch nie dort, aber irgendetwas sagte mir, das es dort sein wird.  
 
-Du meinst, du bist mein leiblicher Vater?
-> Nein. Ich bin Gott.
+Nachdem das Buch nun bereits einige Tages online verfügbar war, kribbelte es mir in den Fingern und ich mußte die Reise, die ich in dem Buch beschrieben hatte, antreten.  
 
-Vater, stimmt es, dass wir eines Tages Götter werden?
-> Ja
+Ich bekam Harz4, was bereits durch eine Sanktion und eine Abzahlung eines Kredites auf 310,- € runtergestuft war, aber diese 310,- € reichten mir, um einfach loszufahrem.  
 
-Vater, stimmt es, dass wir alle eins sind?
-> Ja
+Es war bereits Oktober und es wurde kalt in Berlin. Ich wollte nicht noch einen Winter in meinem Wohlmobil in Berlin wohnen, nachdem mir ein Jahr zuvor alle Wasserleitungen eingefroren waren.  
+Ich wollte runter in den Süden, wo es sogar im Winter recht warm ist.  
 
-Also, jeder Mann auf diesem Planeten bin ich?
-> Ja
 
-Dazu gehören also auch Frauen?
-> Ja
+Mein Verstand riet mir zwar hier zu bleiben, weil die 310,- € grad mal so gereicht haben, aber mein Herz wollte diese Reise.  
 
-Also, wenn wir jemanden verletzen, schlagen wir uns selbst?
-> Ja genau
+Ich werde es im Resumé noch mal erwähnen: **Hört auf euer Herz** 💚 
 
-Warum haben wir Kriege? Warum haben wir Kämpfe?
-> Weil du nicht wusstest, dass wir alle EINS sind.
 
-Wie können wir den Kampf und die Kriege stoppen?
-> Sag die Wahrheit
 
-Dies ist, was Ghandy über alle Religionen herausgefunden hat ... die Wahrheit zu sagen ist der Schlüssel.
-> Ja
-
-Ich sehe, dass ich so etwas mache wie Neal Donald Walsh zuvor. Ist es in Ordnung, etwas Ähnliches zu tun?
-> Ja... wir werden ein anderes Gespräch führen
-
-Geht es darum, dass ich die Wahrheit sage?
-> Du sagst meine Wahrheit
-
-Aber deine Wahrheit wird durch meine Wahrnehmung gefiltert.
-> Es erreicht die richtigen Leute. Sie werden es fühlen. Sie werden die Wahrheit durch Schauer in ihrem Körper fühlen.
-
-Reinkarnieren wir wieder?
-> Nein
-
-Also gehen wir ins Nirvana?
-> Nein
-
-Wohin gehen wir?
-> Du wirst für immer leben
-
-Habe ich etwas falsch gemacht, dass ich für immer leben muss?
-> Willst du mich veräppeln?
-
-Aber unser Körper wird älter.
-> Bullshit. Ich habe dir einen Körper gegeben, der schon aufgehört hat, älter zu werden. Du kennst bereits die 7 Jahre Regel, in denen sich alle Zellen regenerieren. Dein Körper ist also nicht älter als 7 Jahre. Nur dein Verstand wird, sagen wir weiser.
-
-Also bleiben wir alle jung?
-> Nicht wirklich. Einige werden älter und sterben.
-
-Warum sterben sie?
-> Weil sie nicht an Unsterblichkeit glauben.
-
-Kann ich ihnen helfen?
-> Warum willst du? Sie werden eines Tages alleine aufwachen, so wie Du es getan hast.
-
-Aber ich hatte Hilfe von anderen Leuten wie Neal.
-> Du hast dir nur selbst geholfen. Die anderen lesen dieses Buch nicht oder sie lesen es, haben es aber nicht verstanden.
-
-Tut mir leid, dass ich dich wieder warten lasse. (Ich habe oben in diesem Buch etwas hinzugefügt)
-> Es ist in Ordnung. Zeit existiert nicht wirklich.
-
-Was ist denn nun Zeit?
-> Zeit ist ein Konstrukt von Menschen gemacht. Es wurde verwendet, um die Menschen zu versklaven.
-
-Warum versklaven wir Menschen?
-> Frage Sie selbst
-
-Aber ich habe keine Sklaven
-> Du hattest welche. Deinen Hund zum Beispiel.
-
-Aber das war nur für ein Jahr.
-> Und du legst sie an die Leine und versuchst ihnen zu befehlen.
-
-Aha. Aber mir wurde gesagt, dass ich das tun soll.
-> Ja... alle anderen, die Teil der Versklavung sind, wurde befohlen, dies zu tun.
-
-Wo fängt das an?
-> Vor vielen, vielen, vielen Jahren. Die Menschen haben versucht, Lebensmittel anzubauen, und dafür Land genutzt. Einige hungrige Männer kamen und aßen von Ihren Feldern. Also fängst man an, gegen sie zu kämpfen. Sie bauten dann einen Zaun um das Land herum. Sie haben auch Ihre geliebte Frau versklavt, weil Sie nicht wollten, dass andere Männer mit ihr schlafen und sie schwanger machen, weil Sie keine Kinder von jemand anderem ernähren wollten.
-
-Meine Güte, davon habe ich schon in einem anderen Buch gehört.
-> Ja, Du oder sagen wir, er hat das Buch bereits geschrieben, aber nicht jeder hat es gelesen. Auch du hast nicht das ganze Buch gelesen.
-
-Wie können wir also die Sklaverei stoppen?
-> Wach einfach auf
-
-Und sie andere?
-> Toleriere sie. Sie müssen es selbst lernen. Du kannst ihnen nicht helfen. Sie könnten dich beim Versuch töten.
-
-Soll ich aus diesem Gespräch ein Buch machen?
-> Du hast doch bereits begonnen
-
-Wird es jemandem helfen?
-> Es wird dir helfen
-
-Hatte Andy Weir Recht mit seiner Geschichte *Das Ei*?
-> Ja, teilweise
-
-Wir sind also verschiedene Inkarnationen von uns parallel?
-> Ja, das stimmt
-
-Alle Menschen sind ich?
-> Nein, das stimmt nicht
-
-Erinnere ich mich, wenn ich mich treffe?
-> Scherz?... du hast dich schon mehrmals getroffen. Erinnerst du dich an all diese schönen Frauen, mit denen du zusammen warst? Alle deine Freunde... Alle, mit denen du auf physischer Ebene interagierst. Es gibt jedoch einige Ausnahmen.
-
-Welche Ausnahmen?
-> Einige Frauen und Männer, zu denen du keine Liebe fühlst. Sie interagieren nur mit Dir, um ein bisschen Wissen auszutauschen. Einige von ihnen sind sogenannte Statisten. Einige sind da, um Dir einige Grenzen aufzuzeigen. Einige von ihnen geben Dir eine Herausforderung.
-
-Sie sind keine Menschen?
-> Sie sind. Aber sie sind nicht du.
-
-Aber du hast gesagt, wir sind alle EINS?
-> Ja, das stimmt, aber du teilst deine Seele nicht mit allen. Viele Menschen haben andere Seelen, aber von einem anderen Standpunkt aus gesehen seid ihr immer noch alle EINS.
-
-Schaffen wir unsere Realität selbst?
-> Ja
-
-Aber es ist eine gemeinsame Schöpfung mit allen anderen Menschen, oder?
-> Ja
-
-Wir werden also kein Paradies haben, solange noch andere Wesen mitschaffen?
-> Beruhige dich, Bruder. Behalte den Glauben. Wir werden sehen.
